@@ -21,3 +21,18 @@ abs
 olu
 044
 
+drive/folders/
+
+*
+:#
+xr
+blow
+ddg
+1DbIpnTzhmYRqZBl
+
+""*
+
+h7iWJ9cihplKSNrTL
+
+""
+
